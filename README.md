@@ -1,6 +1,6 @@
 - 👋 Greetings young traveler.
 - I have been expecting you.
-- The king of the Mighty kingdom has told me that ypou would arrive.
+- The king of the Mighty kingdom has told me that you would arrive.
 - Would you mind a quest?
 
 
